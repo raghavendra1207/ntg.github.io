@@ -1,1 +1,0 @@
-# ntg.github.io
